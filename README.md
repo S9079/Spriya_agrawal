@@ -21,14 +21,12 @@
 - Canva Pro  
 - Social Media Design  
 - Basic SEO & Digital Marketing  
-- Instagram Growth & Content Strategy
 
 ---
 
 ### 📫 Connect With Me:
 - 📸 Instagram: [@shubhcardsbyspriya](https://instagram.com/shubhcardsbyspriya)  
-- 🔗 LinkedIn: [Spriya Agrawal](https://www.linkedin.com/in/spriya05/)  
-- 📧 Email: shubhcardsbyspriya@gmail.com  
+- 🔗 LinkedIn: [Spriya Agrawal](https://www.linkedin.com/in/spriya05/)    
 
 ---
 
